@@ -1,0 +1,1 @@
+# MagazaB
